@@ -1,2 +1,2 @@
-# Konieczkooo.github.io
-WWW
+# Konieczkooo.pl
+Kontakt: Konieczko#2920
