@@ -1,3 +1,2 @@
 # Konieczkooo.pl
-Kontakt: Konieczko#2920
-
+> Kontakt: Konieczko#2920
